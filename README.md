@@ -1,1 +1,2 @@
 # ruienhuizi
+The favourite name which I used to use is ruienhuizi.I majored in advertisements at university,on the one thing,I like drawing from my childhood,drawing is one of my hobbies,It can bring  pleasure wth my life.on another thing,as far as I'm concerned ,design can creat a miracle,a new and unusual thing,as well as even changing the wordl in general.Nowadays,I am a designer,I have engaged in it for many years,and I will concentrate on design for ever.
